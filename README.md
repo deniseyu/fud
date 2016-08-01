@@ -28,6 +28,12 @@ Belly](http://thewoksoflife.com/2014/04/shanghai-style-braised-pork-belly/)
 
 [Penne Alla Rose](http://thewoksoflife.com/2016/07/penne-alla-rose/)
 
+[Kale Pesto](http://www.bbcgoodfood.com/recipes/2872687/kale-pesto)
+
+[Baked Ziti](http://allrecipes.com/recipe/11758/baked-ziti-i/)
+I substitute ricotta cheese for sour cream, omit the onions and usually the
+meat, and use either Bertolli's vodka sauce or make my own.
+
 ### Vegetables
 
 [Smacked Cucumber
