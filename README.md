@@ -10,6 +10,11 @@ Noodles](http://thewoksoflife.com/2015/06/cold-noodles-with-shredded-chicken/)
 [Cilantro Lime
 Chicken](https://www.reddit.com/r/FoodPorn/comments/3b6wfg/my_husband_said_this_was_the_best_chicken_ive/csjdooe)
 
+[Oyster Sauce Chicken](http://thewoksoflife.com/2016/06/oyster-sauce-chicken/)
+
+[Hainanese Chicken
+Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
+
 ### Lamb/Beef
 
 [Cumin Lamb](http://thewoksoflife.com/2015/09/cumin-lamb/)
@@ -23,3 +28,7 @@ Belly](http://thewoksoflife.com/2014/04/shanghai-style-braised-pork-belly/)
 
 [Penne Alla Rose](http://thewoksoflife.com/2016/07/penne-alla-rose/)
 
+### Vegetables
+
+[Smacked Cucumber
+Salad](http://thewoksoflife.com/2015/06/smashed-asian-cucumber-salad/)
