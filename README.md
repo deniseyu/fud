@@ -15,6 +15,9 @@ Chicken](https://www.reddit.com/r/FoodPorn/comments/3b6wfg/my_husband_said_this_
 [Hainanese Chicken
 Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 
+[Kung Pao Chicken
+Wings](http://www.menshealth.com/nutrition/kung-pao-chicken-wings)
+
 ### Lamb/Beef
 
 [Cumin Lamb](http://thewoksoflife.com/2015/09/cumin-lamb/)
