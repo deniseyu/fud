@@ -1,6 +1,7 @@
 # fud
 
-A collection of recipes curated throughout the interwebs.
+A collection of recipes curated throughout the interwebs that have a stamp
+of approval from me and [Spike](https://github.com/spike01). 
 
 ### Chicken/Poultry
 
@@ -14,6 +15,8 @@ Chicken](https://www.reddit.com/r/FoodPorn/comments/3b6wfg/my_husband_said_this_
 
 [Hainanese Chicken
 Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
+
+[Dry Rub Chicken](http://thewoksoflife.com/2016/03/easy-asian-dry-rub-chicken/)
 
 ### Lamb/Beef
 
