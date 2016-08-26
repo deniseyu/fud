@@ -21,6 +21,7 @@ Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 ### Lamb/Beef
 
 [Cumin Lamb](http://thewoksoflife.com/2015/09/cumin-lamb/)
+[Xian famous spicy cumin lamb hand-smashed noodles](http://ladyandpups.com/2015/03/04/my-xian-famous-spicy-cumin-lamb-hand-smashed-noodles/)
 
 ### Pork
 
