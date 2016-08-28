@@ -21,12 +21,17 @@ Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 ### Lamb/Beef
 
 [Cumin Lamb](http://thewoksoflife.com/2015/09/cumin-lamb/)
+
 [Xian famous spicy cumin lamb hand-smashed noodles](http://ladyandpups.com/2015/03/04/my-xian-famous-spicy-cumin-lamb-hand-smashed-noodles/)
 
 ### Pork
 
 [Shanghai-style Braised Pork
 Belly](http://thewoksoflife.com/2014/04/shanghai-style-braised-pork-belly/)
+
+### Seafood
+
+[Salt and Pepper Shrimp](http://thewoksoflife.com/2015/07/salt-and-pepper-shrimp/)
 
 ### Noodles/Pasta
 
@@ -42,3 +47,5 @@ meat, and use either Bertolli's vodka sauce or make my own.
 
 [Smacked Cucumber
 Salad](http://thewoksoflife.com/2015/06/smashed-asian-cucumber-salad/)
+
+[Bean Sprout Salad](http://www.elinluv.com/2016/06/mung-bean-sprout-side-dish-sukjunamul.html)
