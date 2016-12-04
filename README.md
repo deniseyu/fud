@@ -24,6 +24,8 @@ Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 
 [Xian famous spicy cumin lamb hand-smashed noodles](http://ladyandpups.com/2015/03/04/my-xian-famous-spicy-cumin-lamb-hand-smashed-noodles/)
 
+[Beef Shin Ragu](http://chelseawinter.co.nz/beef-shin-ragu/) Make sure to use a full-bodied, not-too-sweet red wine for this. I would also add 1 cup more of stock, since it dries up in the oven.
+
 ### Pork
 
 [Shanghai-style Braised Pork
