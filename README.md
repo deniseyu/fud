@@ -42,10 +42,17 @@ Belly](http://thewoksoflife.com/2014/04/shanghai-style-braised-pork-belly/)
 [Kale Pesto](http://www.bbcgoodfood.com/recipes/2872687/kale-pesto)
 
 [Baked Ziti](http://allrecipes.com/recipe/11758/baked-ziti-i/)
-I substitute ricotta cheese for sour cream, omit the onions and usually the
-meat, and use either Bertolli's vodka sauce or make my own.
+
+I substitute ricotta cheese for sour cream, omit the onions (and usually the
+meat), and use either Bertolli's vodka sauce or make my own.
 
 [Heston Blumenthal's Mac and Cheese](http://www.insearchofheston.com/2013/02/heston-v-hawksmoor-macaroni-cheese/)
+
+[Mushroom Bolognese](http://www.seriouseats.com/recipes/2014/02/pasta-rich-hearty-mushroom-bolognese-recipe.html)
+
+I ended up not using nut milk, and instead of miso I used two stock pots (one mushroom flavored and one vegetable flavored). This involves a LOT of chopping time, highly recommend using a food processor!
+
+[Beef & Pork Bolognese](http://www.seriouseats.com/recipes/2016/12/basic-ragu-bolognese-recipe.html)
 
 ### Vegetables
 
