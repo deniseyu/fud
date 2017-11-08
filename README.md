@@ -54,9 +54,13 @@ I ended up not using nut milk, and instead of miso I used two stock pots (one mu
 
 [Beef & Pork Bolognese](http://www.seriouseats.com/recipes/2016/12/basic-ragu-bolognese-recipe.html)
 
+[Dumpling Galaxy's Dumpling Wrapper Recipe](http://www.designsponge.com/2017/02/in-the-kitchen-with-dumpling-galaxys-spicy-beef-dumplings.html) - haven't made the spicy beef filling, but the wrapper goes great with boiled or pan-fried dumplings!
+
 ### Vegetables
 
 [Smacked Cucumber
 Salad](http://thewoksoflife.com/2015/06/smashed-asian-cucumber-salad/)
 
 [Bean Sprout Salad](http://www.elinluv.com/2016/06/mung-bean-sprout-side-dish-sukjunamul.html)
+
+[Aloo Gobi](https://www.thespruce.com/aloo-matar-gobi-cauliflower-peas-potatoes-1957954) - I added some carrots for some extra sweetness.
