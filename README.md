@@ -8,15 +8,14 @@ of approval from me and [Spike](https://github.com/spike01).
 [Cold Shredded Chicken
 Noodles](http://thewoksoflife.com/2015/06/cold-noodles-with-shredded-chicken/)
 
-[Cilantro Lime
-Chicken](https://www.reddit.com/r/FoodPorn/comments/3b6wfg/my_husband_said_this_was_the_best_chicken_ive/csjdooe)
-
 [Oyster Sauce Chicken](http://thewoksoflife.com/2016/06/oyster-sauce-chicken/)
 
 [Hainanese Chicken
 Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 
 [Dry Rub Chicken](http://thewoksoflife.com/2016/03/easy-asian-dry-rub-chicken/)
+
+[Instant pot butter chicken](https://pipingpotcurry.com/butter-chicken-instant-pot/)
 
 ### Lamb/Beef
 
@@ -30,6 +29,8 @@ Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 
 [Shanghai-style Braised Pork
 Belly](http://thewoksoflife.com/2014/04/shanghai-style-braised-pork-belly/)
+
+[Ants climbing tree](https://thewoksoflife.com/ants-climbing-a-tree/) - A Sichuanese classic that has nothing to do with ants or trees
 
 ### Seafood
 
@@ -64,3 +65,22 @@ Salad](http://thewoksoflife.com/2015/06/smashed-asian-cucumber-salad/)
 [Bean Sprout Salad](http://www.elinluv.com/2016/06/mung-bean-sprout-side-dish-sukjunamul.html)
 
 [Aloo Gobi](https://www.thespruce.com/aloo-matar-gobi-cauliflower-peas-potatoes-1957954) - I added some carrots for some extra sweetness.
+
+
+### Thanksgivings, Christmases, and other roast dinner occasions
+
+[Sage & sausage stuffing](https://www.seriouseats.com/classic-sage-and-sausage-stuffing-or-dressing-recipe) - works well if you don't have sausage too!
+
+[Warm brussels sprouts salad](https://www.seriouseats.com/warm-brussels-sprout-salad-bacon-hazelnut-sherry-vinaigretter-recipe)
+
+[Yorkshire puddings](https://www.seriouseats.com/the-best-yorkshire-pudding-popover-recipe)
+
+[Pear frangipane tart](https://www.abeautifulplate.com/pear-frangipane-tart/)
+
+[Thomas Keller's roast chicken](https://www.thecomfortofcooking.com/2015/05/thomas-keller-3-ingredient-roasted-chicken.html)
+
+[Reverse seared prime rib](https://www.seriouseats.com/perfect-prime-rib-beef-recipe)
+
+[Red wine braised short rib](https://www.seriouseats.com/red-wine-braised-beef-short-ribs-recipe) - I don't bother with the port reduction. One time I added a splash of balsamic vinegar to the resulting sauce and it came out great.
+
+[Sticky toffee pudding](https://www.browneyedbaker.com/sticky-toffee-pudding-recipe/)
