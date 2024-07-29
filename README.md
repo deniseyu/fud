@@ -17,6 +17,8 @@ Rice](http://thewoksoflife.com/2015/08/hainanese-chicken-rice/)
 
 [Instant pot butter chicken](https://pipingpotcurry.com/butter-chicken-instant-pot/)
 
+[Xian hot and spicy numbing chicken wings](https://www.seriouseats.com/hot-and-numbing-oven-fried-xian-chicken-wings-recipe) - this seasoning mix goes great on all grilled things!
+
 ### Lamb/Beef
 
 [Cumin Lamb](http://thewoksoflife.com/2015/09/cumin-lamb/)
